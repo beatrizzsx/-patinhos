@@ -15,7 +15,7 @@ Peso de um pato, varia em média de 0,72 – 1,6 kg;
 Comprimento: Pato-real: 50 – 65 cm,
 
 Família: Anatidaeo caso dos patos, tratam-se de animais onívoros que vivem em lagos, rios ou pântanos. Sendo assim, o cardápio dessas aves aquáticas é capaz de incluir plantas, peixes, insetos, sementes e algas.
-Pato - A carne de pato é uma excelente fonte de vitamina B3 - 100 gramas de peito de pato fornece cerca de metade das necessidades diárias de vitamina B3 do ser humano. É uma vitamina fundamental no metabolismo das gorduras do corpo e é também uma vitamina que ajuda a controlar os níveis de colesterol.
+
 
 
 
