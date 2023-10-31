@@ -4,8 +4,8 @@
  
  CURIOSIDADES
 
- 
-
+  à família Anatidae. Os patos são menores e de pescoço mais curto que os cisnes e gansos, que são os membros da mesma família.
+para numerosas espécies de aves aquáticas pertencentes à família Anatidae. Os patos são menores e dera numerosas espécies de aves aquáticas pertencentes
 
 São aves geralmente menores que os gansos e cisnes, podem ser encontrados tanto em água doce como salgada, alimentam-se de vegetação aquática, moluscos e pequenos invertebrados e algumas espécies são aves migradoras.
 
