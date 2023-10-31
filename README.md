@@ -4,7 +4,10 @@
  
  CURIOSIDADES
 
- Pato é o nome comum para numerosas espécies de aves aquáticas pertencentes à família Anatidae. Os patos são menores e de pescoço mais curto que os cisnes e gansos, que são os membros da mesma família. 
+ 
+
+
+São aves geralmente menores que os gansos e cisnes, podem ser encontrados tanto em água doce como salgada, alimentam-se de vegetação aquática, moluscos e pequenos invertebrados e algumas espécies são aves migradoras.
 
 Os patos botam em média de 8 a 13 ovos;
 
